@@ -1,4 +1,4 @@
-#The Hawaiian shirt never ceased to be cool
+# The Hawaiian shirt never ceased to be cool
 
 ![](https://i.ebayimg.com/images/g/m3QAAOxy4eJTLMye/s-l300.jpg)
 
