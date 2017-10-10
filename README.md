@@ -2,6 +2,8 @@
 
 ![](https://i.ebayimg.com/images/g/m3QAAOxy4eJTLMye/s-l300.jpg)
 
+![](http://epmgaa.media.clients.ellingtoncms.com/img/photos/2015/07/01/Ace-Ventura.jpg)
+
 ![](http://assets.esquire.co.uk/images/uploads/fourbythree/_540_43/tom-selleck-hawaiian-shirt-promo-43.jpg)
 
 ![](http://theawesomedaily.com/wp-content/uploads/2016/07/UQ8guZG.jpg)
